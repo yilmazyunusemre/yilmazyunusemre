@@ -86,7 +86,6 @@ Abartmadan, dürüstçe ve adım adım ilerlemeyi önemsiyorum. Birlikte öğren
 
 </div>
 
-<p align="center"><sub>Katkı geçmişimi, aşağıda kareleri "yiyen" yılan da gösteriyor 🐍</sub></p>
 
 <div align="center">
 
